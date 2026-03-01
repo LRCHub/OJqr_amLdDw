@@ -1,4 +1,4 @@
-# ZUTOMAYO – 暗く黒く（Crack Clock） (Live)
+# ずっと真夜中でいいのに。 – 暗く黒く（Crack Clock） (Live)
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
